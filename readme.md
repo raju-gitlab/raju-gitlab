@@ -8,7 +8,7 @@ I'm a passionate software developer with a strong focus on web technologies and 
 
 🤝 Let's collaborate and create amazing software solutions together! 
 
-🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/guptapriyansh098/).
+🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/raju-basak-94104a219/).
 
 📧 Reach me via email at career.rajubasak@gmail.com.
 
